@@ -3,7 +3,7 @@
 
 https://imco.osmankaradeniz.com/
 
-<a href="https://gifyu.com/image/1TPq"><img src="https://s6.gifyu.com/images/GIF-15.06.2021-19-25-17.md.gif" alt="GIF-15.06.2021-19-25-17.gif" border="0" /></a>
+<a href="https://gifyu.com/image/1TPq" target="_blank"><img src="https://s6.gifyu.com/images/GIF-15.06.2021-19-25-17.md.gif" alt="GIF-15.06.2021-19-25-17.gif" border="0" /></a>
 <br/>
 Kullanım ile iglili kısa bir kesit [İzlemek için görüntüye tıklayınız.]
 
